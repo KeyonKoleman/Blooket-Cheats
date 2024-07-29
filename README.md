@@ -1,5 +1,7 @@
 # Blooket-Cheats
 
+<img src="https://github.com/KeyonKoleman/Blooket-Cheats/blob/main/bl.jpg"/>
+
 Unlock Blooket answers in milliseconds! Use game pins or homework links to get answers, auto-answer scripts, and more.
 
 The cheats availability may depend on the game mode and your account status.
@@ -13,4 +15,4 @@ The Blooket hack is currently operational. The tool is regularly updated to ensu
 
 The Blooket hack is designed to be undetectable, ensuring users can cheat without getting caught by teachers or school systems. Advanced security measures are implemented to maintain user privacy and safety.
 
-🔥👉 GET STARTED
+🔥👉 [GET STARTED](https://bit.ly/3A1PZNs)
