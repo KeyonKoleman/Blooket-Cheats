@@ -9,7 +9,7 @@ The cheats availability may depend on the game mode and your account status.
 Accessing answers for Blooket games is incredibly simple. Just paste your game PIN code or homework link into our Blooket Hack.
 That's it! You're all set to access the answers.
 
-Blooket hack is a cheat tool designed to quickly provide users with correct answers and other functionalities. It can be used on online homeworks, exams, tests and more....
+Blooket hack is a cheat tool designed to quickly provide users with correct answers and other functionalities. It can be used on online homeworks, exams, tests and more
 
 The Blooket hack is currently operational. The tool is regularly updated to ensure compatibility with the latest versions of Blooket, providing a reliable cheating experience.
 
